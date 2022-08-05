@@ -1,0 +1,1 @@
+![Photo of Mandie in front of Half Dome, Yosemite National Park](https://media-exp1.licdn.com/dms/image/C5603AQFsctnRMxjXaA/profile-displayphoto-shrink_200_200/0/1659623868355?e=2147483647&v=beta&t=bs6LaOycMcMMeWPEeFUl9I5gDa3nnH0X9PRB925IJRA)
